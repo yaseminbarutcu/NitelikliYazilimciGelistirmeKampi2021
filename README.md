@@ -1,0 +1,1 @@
+# NitelikliYazilimciGelistirmeKampi2021
